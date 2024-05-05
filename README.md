@@ -77,8 +77,13 @@
   
 
 ### 🚀 Open for Collaboration
-Let's build something incredible together! Feel free to reach out for collaboration opportunities, discussions, or just to say hi!
+ Let's build something incredible together! Feel free to reach out for collaboration opportunities, discussions, or just to say hi!
 
 - 🤝 I’m looking to collaborate on Absolutely anything that would Teach me something new or Expand my Knowledge.
+---
+> ❝Don't you dare go hollow.❞
 
+— Jeet Chauhan
+
+---
 <h1 align="center">✨ Thanks For Viewing ✨</h1>
